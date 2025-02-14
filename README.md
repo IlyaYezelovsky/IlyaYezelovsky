@@ -17,5 +17,3 @@ QQ：1026491165
 Minecraft Java版ID：IlyaYezelovsky
 
 Bilibili：https://space.bilibili.com/3493084490893445
-
-**此用户放假中，直至2025年2月10日**
